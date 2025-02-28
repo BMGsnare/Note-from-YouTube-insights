@@ -1,4 +1,4 @@
-# Note from YouTube insights
+# Notes from YouTube insights
 
 
 ## 28/02/2025
